@@ -1,1 +1,0 @@
-Egyszeru footer

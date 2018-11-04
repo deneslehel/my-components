@@ -1,0 +1,1 @@
+teljes kepenyos fejlec
